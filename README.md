@@ -1,3 +1,6 @@
-![bill](https://d1m014nbx2m9vv.cloudfront.net/h9s9pa%2Fpreview%2F60965488%2Fmain_large.gif?response-content-disposition=inline%3Bfilename%3D%22main_large.gif%22%3B&response-content-type=image%2Fgif&Expires=1726835409&Signature=fYGkHub~q9cr2TqEroimP4chk63g-WKHmF3vhxplbZUIVYIBiBAv-23-9pDlyANKJ6fvp3Lxyuy52nlgkkGH37nFkxGa55eMR-itoUhovwn5TMz8vKtGfyy~U~N1OVoZrmHW3AsUzusWrW5HUqJJkjd9J0NoB9mi4I4xLyQnpK0lfyZAWQMJHHROJ4yctgQHj6lRZiHStxkBKrVNeZUpUHDZ7oFTAZcoD3ZXX-avq08U59L7Y76HBTnwK6C~IsGR6fyDUhQ9g0sC2qtk95wHcvobB0YHlfg95hKmHwrjJP33PAwDFu6ngIF9fvbfDu2uSULa615lM2inKdwJvEZ5rA__&Key-Pair-Id=APKAJT5WQLLEOADKLHBQ)
+![](https://wilardo.crd.co/assets/images/gallery22/665c69e4.gif?v=d19c95ca)
 
-ㅤㅤ ㅤㅤㅤ ㅤ *i looked up and saw the stars ,* ***and i was ready to be one.***
+ㅤㅤㅤㅤ<h6>[art by aster](https://x.com/pastelstarstuff/status/1830359758295187747)
+ [![GWa-J8i-W4-AAYMES.jpg](https://i.postimg.cc/LX5JHwYM/GWa-J8i-W4-AAYMES.jpg)](https://postimg.cc/CByh7vsv)
+
+ㅤㅤ ㅤㅤㅤ ㅤ ***and i was ready to be one.***
