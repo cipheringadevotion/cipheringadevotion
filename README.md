@@ -3,4 +3,4 @@
  
  [![GWa-J8i-W4-AAYMES.jpg](https://i.postimg.cc/LX5JHwYM/GWa-J8i-W4-AAYMES.jpg)](https://postimg.cc/CByh7vsv)
 
-ㅤㅤㅤㅤㅤㅤ<***and i was ready to be one.***
+ㅤㅤㅤㅤㅤㅤ***and i was ready to be one.***
