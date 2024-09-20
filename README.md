@@ -3,6 +3,6 @@
  
  [![GWa-J8i-W4-AAYMES.jpg](https://i.postimg.cc/LX5JHwYM/GWa-J8i-W4-AAYMES.jpg)](https://postimg.cc/CByh7vsv)
 
-ㅤㅤㅤ ִ࣪ ࣪𖤐ㅤヽ ***and i was ready to be one . . . ᯓ★***    
+ㅤㅤㅤ ִ࣪ ࣪𖤐ヽㅤ***and i was ready to be one . . . ᯓ★***    
 
 ![](https://wilardo.crd.co/assets/images/gallery22/665c69e4.gif?v=d19c95ca)
