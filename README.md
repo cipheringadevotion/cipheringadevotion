@@ -4,5 +4,5 @@
  [![GWa-J8i-W4-AAYMES.jpg](https://i.postimg.cc/LX5JHwYM/GWa-J8i-W4-AAYMES.jpg)](https://postimg.cc/CByh7vsv)
 
 ㅤㅤㅤ ִ࣪ ࣪𖤐 ㅤ***and i was ready to be one . . . ᯓ★***    
-ㅤㅤㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/billfordyurii) ㅤㅤㅤ[strawpage](https://lalalalala-lalalalala.straw.page)
+ㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/billfordyurii) ㅤㅤㅤㅤㅤ[strawpage](https://lalalalala-lalalalala.straw.page)
 ![](https://wilardo.crd.co/assets/images/gallery22/665c69e4.gif?v=d19c95ca)
